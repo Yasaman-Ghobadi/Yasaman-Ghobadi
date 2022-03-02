@@ -2,7 +2,7 @@
 
 •I'm interested in Web Development
 
-•I'm currently learning bootstrap5 & Js
+•I'm currently learning JavaScript
 
 •I'm actively looking for job opportunites
 
