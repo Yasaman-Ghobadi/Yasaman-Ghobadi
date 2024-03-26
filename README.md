@@ -2,4 +2,4 @@
 
 •I'm interested in Web Development
 
-•Reach me via: my gmail: Msyasamanghobadi@gmail.com
+•Reach me via my gmail: Msyasamanghobadi@gmail.com
